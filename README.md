@@ -1,3 +1,0 @@
-# progdas
-
-aku suka readme 
